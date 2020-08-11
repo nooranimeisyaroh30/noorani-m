@@ -1,2 +1,0 @@
-# noorani-m
-tugas praktikum
